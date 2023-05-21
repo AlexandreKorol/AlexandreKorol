@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlexandreKorol
 - 👀 I’m interested in website construction
-- 🌱 I’m currently learning how to be more useful for my clients
+- 🌱 I’m currently learning how to be more useful to my clients
 - 💞️ I’m looking to collaborate with some big companies
 - 📫 How to reach me: e-mail: korolevich.alexandr@mail.ru
 
